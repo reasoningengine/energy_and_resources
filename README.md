@@ -1,2 +1,2 @@
 # energy_and_resources
-some ideas about energy and resources
+Torfjannik , torf , tourbe  , shale gas , fracking , new sources of energy
